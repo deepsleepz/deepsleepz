@@ -1,4 +1,11 @@
-## Hi there 👋
+C H freely , int !! maybe only for friends TT
+
+do not copy ,cover my skins or ill hide/ block
+
+i rarely online but i usually online in june-august !
+
+
+wip
 
 <!--
 **deepsleepz/deepsleepz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
