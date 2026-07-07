@@ -2,6 +2,9 @@
 
 
 
+❤︎ my pronouns is she / any 
+
+
 
 ♡ C H freely , int !! maybe only for friends TT
 
